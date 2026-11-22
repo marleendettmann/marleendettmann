@@ -1,6 +1,6 @@
 # Marleen Dettmann
 
-*Dr. rer. medic. · Demographer · Data Analyst · Scientific Software Development*
+*Dr. rer. medic. · Demographer · Data Analyst · Research Software Projects*
 
 ## About
 
